@@ -1,2 +1,2 @@
-# JessicaEmberlyBooks
-Purchase Jessica Emberly books. 
+## Jessica Emberly Books
+Jessica Emberly Books are available on Amazon.
