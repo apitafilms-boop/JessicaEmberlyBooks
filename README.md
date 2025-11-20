@@ -15,7 +15,7 @@ During a devastating war, Hitler is tasked with creating super soldiers.
 ### The Queen and Sir Vlademeur
 Sir Vlademeur must find, and save the Queen before midnight.
 
-![The Queen and Sir Vladimir (1600 x 2560 px)_20251120_063136_0000](https://github.com/user-attachments/assets/1a7ffbf4-7a71-4f2f-a1f2-6bee225b7d03)
+![The Queen and Sir Vladimir (1600 x 2560 px)_20251120_093229_0000](https://github.com/user-attachments/assets/5a04351e-6e2f-4d9c-b07a-45b25266b3fb)
 
 
 [Amazon](https://a.co/d/iqvXqK0)
