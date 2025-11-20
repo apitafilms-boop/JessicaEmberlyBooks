@@ -1,3 +1,6 @@
+<img width="1050" height="600" alt="JESSICA EMBERLY_20251120_055955_0000" src="https://github.com/user-attachments/assets/4391ee49-e398-422c-b30b-fddfd41eea9a" />
+
+
 ## Jessica Emberly Books
 Jessica Emberly's Books are available on Amazon.
 
